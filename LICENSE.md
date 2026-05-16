@@ -1,4 +1,4 @@
-# 
+# Get the ultimate opensea sniper bot with best NFT Flip Bot for opensea sniper bot | metadata-parsing & floor-price-tracking. Featuring metadata-parsing and floor-price-tracking,
 
 
 
